@@ -50,4 +50,4 @@ There is still more to do, more to learn, and more to improve. But if this year 
 
 Looking ahead, I hope my consulting firm invests more in personal development and leadership training over the coming year. It’s something I’ve missed throughout this past year, and an area I believe would make a meaningful difference — not just for me, but for many of us. Continuous learning is a big part of why I chose this path, and I’d really value more structured opportunities to grow as a leader, exchange experiences, and gain new perspectives.
 
-I would also love the opportunity to attend more conferences and find forums where I can challenge myself, stay inspired, and keep developing — both professionally and personally. If you want, I can merge this with your previous text into one cohesive post.
+I would also love the opportunity to attend more conferences and find forums where I can challenge myself, stay inspired, and keep developing — both professionally and personally.
